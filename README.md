@@ -1,1 +1,0 @@
-# NotOrtalamas-_Hesaplama
